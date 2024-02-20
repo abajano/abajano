@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @abajano
+- 👀 I’m interested in software development 
+- 🌱 I’m currently learning web development 
+- 💞️ I’m looking to collaborate on everything worthy of the learning process 
+- 📫 I can be reached on saadabajano@gmail.com 
+- 😄 Pronouns: ...
+- ⚡ Fun fact: This scholarship opportunity got me without a laptop.
+- I didn't own one and it took me up to yesterday to secure a borrowed one.
+- Tonight, the owner requested that i return it🤣. It's unfortunate but i will get along.
