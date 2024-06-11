@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abajano
 - 👀 I’m interested in software development 
-- 🌱 I’m currently learning web development 
+- 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on web development 
 - 📫 I can be reached on saadabajano@gmail.com 
